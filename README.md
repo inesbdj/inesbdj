@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @inesbdj
+- 🌱 I’m currently studying economics and management
